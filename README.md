@@ -1,0 +1,1 @@
+# Guia-de-Formatacao-de-Pendrive-no-Windows-11-RAW
